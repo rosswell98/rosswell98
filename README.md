@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rosswell98
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning to collaborate
+- 💞️ I’m looking to collaborate on reaching me
+- 📫 How to reach me : @rosswell98 on Github
